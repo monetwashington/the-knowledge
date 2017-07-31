@@ -8,5 +8,7 @@
 ## i've been working on my goals by applying to every single free coding bootcamp
 ## so far i've been unlucky, but that hasnt stopped me 
 ## this summer i've attended infor's hackathon the the infor convention at the jacob javitz center
+![img_4987](https://user-images.githubusercontent.com/30600007/28786355-fdee83e0-75e6-11e7-9424-36561d3cda9c.JPG)
+
 ## i was granted access to the event because i took a infor mongoose course
 ## i should be accepted into the java script training program because i am passionate about technology, im smart, i play hard and i work hard.
