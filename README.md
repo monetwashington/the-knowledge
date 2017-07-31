@@ -14,3 +14,4 @@
 ## i should be accepted into the java script training program because i am passionate about technology, im smart, i play hard and i work hard.
 ## my favorite movie is friends with benefits featuring mila kunis and justin timberlake 
 ## my favorite sports team is the knicks.. only when they are winning though
+![Uploading e8711c18fd52bd63e4fa15f69d41e920.jpeg…]()
